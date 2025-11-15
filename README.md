@@ -14,4 +14,4 @@
 
 
    ### Se adjunta Presentaciones del Plan de Marketing Digital
-   [[Presentaciones del Plan de Marketing Digital](MODIFICA - AQUI VA LA DIRECCION COMPARTIDA DEL ARCHIVO)]
+   [[Presentaciones del Plan de Marketing Digital](https://gamma.app/docs/Estrategia-Google-Ads-con-Embudo-de-Ventas-g8929tkmudnr4k3)]
